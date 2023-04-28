@@ -1,0 +1,1 @@
+# rajstrateqgroup1
